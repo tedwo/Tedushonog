@@ -1,1 +1,4 @@
 # Tedushonog
+Delai
+Chtonibud 
+(net)
